@@ -1,1 +1,1 @@
-Daddy said, stop watching cartoons and learn
+I continue to list aloud.
